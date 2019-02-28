@@ -1,1 +1,1 @@
-# Modeling of Polymers Paper Readning Roadmap
+# Modeling of Polymers Paper Reading Roadmap
